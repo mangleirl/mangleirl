@@ -1,1 +1,2 @@
-<img width="2048" height="1710" alt="Untitled310_20260103021853" src="https://github.com/user-attachments/assets/73b2a8ae-876a-4a26-baa0-80b5523cc945" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="512" height="427" alt="Untitled310_20260103021853" src="https://github.com/user-attachments/assets/73b2a8ae-876a-4a26-baa0-80b5523cc945" />  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&size=15&duration=2500&pause=500&color=FFD1E3&background=FFFFFF00&center=true&multiline=true&repeat=false&width=435&lines=%22+soon+you'll+look+just+like+me+.+.+.;beautiful+!+%22)](https://git.io/typing-svg)
