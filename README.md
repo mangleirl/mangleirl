@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mangleirl&style=plastic&color=ffbdda&label=+🦴+)  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mangleirl&style=plastic&color=ffbdda&label=+🦴+)  
 <img width="2048" height="888" alt="Untitled315_20260108022841" src="https://github.com/user-attachments/assets/1dbce486-85b3-4d46-ae97-4caf042cbd05" />  
   
   
