@@ -1,11 +1,16 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=mangleirl&style=plastic&color=ffbdda&label=+🦴+)  
-<img width="2048" height="1253" alt="Untitled310_20260103160856" src="https://github.com/user-attachments/assets/5c7a5b7a-c1f7-49ca-b5de-407ddee09829" />  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[<img width="177" height="79" alt="Untitled310_20260103162940" src="https://github.com/user-attachments/assets/df87fe0b-d5c6-466a-a483-2de5b5babe4b" />](https://m4ngled.straw.page/)ㅤㅤㅤ
-[<img width="105" height="80" alt="Untitled310_20260103162953" src="https://github.com/user-attachments/assets/a9de22a3-7062-466e-96d9-7ad85804a2fd" />](https://m4ngled.atabook.org/)  
+<img width="2048" height="888" alt="Untitled315_20260108022841" src="https://github.com/user-attachments/assets/1dbce486-85b3-4d46-ae97-4caf042cbd05" />  
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[<img width="320" height="79" alt="Untitled310_20260103164610" src="https://github.com/user-attachments/assets/35aa877b-4032-4ad6-a973-396d317a4c74" />
-](https://pronouns.cc/@m4ngle)  
-<img width="2048" height="930" alt="Untitled310_20260103164439" src="https://github.com/user-attachments/assets/dcc2f7f4-20d5-4927-81f4-39ef44e547ca" />
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[<img width="448" height="89" alt="Untitled315_20260108023817" src="https://github.com/user-attachments/assets/75cd03d3-6b41-4dd8-a8ef-8cc65132474e" /> ](https://m4ngled.straw.page/)ㅤㅤㅤ  
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[<img width="353" height="87" alt="Untitled315_20260108023949" src="https://github.com/user-attachments/assets/ba8df6d2-6a61-4bf8-a4aa-7b16b3976cc3" />
+](https://m4ngled.atabook.org/)  
+  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[<img width="389" height="80" alt="Untitled315_20260108023807" src="https://github.com/user-attachments/assets/52692503-c7ac-4c96-a8ab-29acb28b98e2" /> ](https://pronouns.cc/@m4ngle)  
+  
+<img width="2048" height="1035" alt="Untitled315_20260108024813" src="https://github.com/user-attachments/assets/f81cb148-f475-4d30-b160-342827312743" />
+
 
 
 
